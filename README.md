@@ -18,5 +18,8 @@ the Kachwahas shifted their capital to Jaipur during the time of Sawai Jai Singh
 *  Alternative: If you prefer a more eco-friendly option, opt for a jeep ride to the fort.
 
 *  Amer near street food
-*  . Chokhi Dhani 
+*  . Chokhi Dhani
+*   Masala Chowk
+*   LMB (Laxmi Misthan Bhandar)
+*   
 *  
