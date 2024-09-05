@@ -34,5 +34,8 @@ Hawa Mahal
 
 The Hawa Mahal is a palace in the city of Jaipur, Rajasthan, India. Built from red and pink sandstone, 
 it is on the edge of the City Palace, Jaipur, and ...
+: Hawa Mahal is a unique five-story building shaped like a pyramid. Its façade resembles a honeycomb with 953 small windows or "jharokhas" adorned with intricate latticework. This design allows the breeze to pass through, giving the palace its name, "Palace of Winds."
+Red and Pink Sandstone: The palace is made from red and pink sandstone, reflecting the signature color of Jaipur, known as the Pink City.
+Rajput and Mughal Influence: The architecture is a blend of Rajput and Mughal styles, featuring arches, domes, and delicate stonework
 
 
