@@ -15,3 +15,8 @@ the Kachwahas shifted their capital to Jaipur during the time of Sawai Jai Singh
 * The best time to visit Amer Fort in Jaipur is during the cooler months, from October to March. Here's
 * Start your day early and visit the fort during sunrise. The golden light falling on the red sandstone walls
 *  creates a magical ambiance, making the experience truly unforgettable.
+*  Alternative: If you prefer a more eco-friendly option, opt for a jeep ride to the fort.
+
+*  Amer near street food
+*  . Chokhi Dhani 
+*  
