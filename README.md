@@ -21,5 +21,18 @@ the Kachwahas shifted their capital to Jaipur during the time of Sawai Jai Singh
 *  . Chokhi Dhani
 *   Masala Chowk
 *   LMB (Laxmi Misthan Bhandar)
+
+*   hr
+
 *   
-*  
+Hawa Mahal
+
+
+![download](https://github.com/user-attachments/assets/0b0fb6d4-4266-4ca3-9904-0ca817694439)
+*   ![download](https://github.com/user-attachments/assets/052a0f02-9fc0-457c-b91c-ed8a4131e6b4)
+*  ![download](https://github.com/user-attachments/assets/533d28c1-c3e3-4621-8abb-b5cee52e968f)
+
+The Hawa Mahal is a palace in the city of Jaipur, Rajasthan, India. Built from red and pink sandstone, 
+it is on the edge of the City Palace, Jaipur, and ...
+
+
